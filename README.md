@@ -1,1 +1,1 @@
-# HelloWorld-
+# HelloWorld-let me begin by firstly saying that I'm a person seeking and very strong in collaborative coding. secondly, I think I'm a pretty nice guy. get to know me, help me with some coding or if you need an icebreaker ask me about what kinds of code I work with, usually, javascript, html, sqllite, injection methods, etc, etc.
